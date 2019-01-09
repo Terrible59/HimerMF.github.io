@@ -1,2 +1,2 @@
 # HimerMF.github.io
-суперфайл
+[Новый мир](https://hiermfithub.io/nov_mir/)
